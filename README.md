@@ -1,7 +1,7 @@
 # Thangdo0104
 😙 Hi all!
 
-I'm Do Dinh Thang, I am currently studying Management Information System at Banking Academy.
+I'm Do Dinh Thang, currently studying Management Information System at Banking Academy.
 
 
 
